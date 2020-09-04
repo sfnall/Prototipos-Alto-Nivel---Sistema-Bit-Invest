@@ -1,1 +1,0 @@
-# Projeto-BitInvest---Prot-tipo-Mobile
